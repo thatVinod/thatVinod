@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thatVinod
-- 👀 I’m interested in digital technologies, data, conversations, productivity, change & growth
+- 👀 I’m interested in digital technologies, data, conversations, change & growth
 - 📖 I’m currently learning soft skills
 - 💞️ I’m looking to collaborate on projects related to what 'I'm interested in'
 - 📫 You can reach me here or on Twitter (same handle)

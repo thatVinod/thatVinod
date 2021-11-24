@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thatVinod
+- 👋 Hi, I’m Vinod
 - 👀 I’m interested in digital technologies, data, conversations, change & growth
 - 📖 I’m currently learning soft skills
 - 💞️ I’m looking to collaborate on projects related to what 'I'm interested in'
